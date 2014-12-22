@@ -36,7 +36,31 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Mischeefes mysterie: or, Treasons master-peece, the Powder-plot Inuented by hellish malice, preuente
+
+1. TO THE RIGHT HONOVRABLE, Sr. IOHN LEMMON Knight, Lord Maior of the most famous City of London, and to the Right Worshipfull Sr. William Crauen Knight, Alderman of London, and President of Christs Hospitall, with the Worshipfull Mr. Richard Heath TREASVRER, together with all the Right Worshipfull and Worshipfull Gouernours thereof, IOHN VICARS wisheth all externall happinesse, and internall peace of conscience in this life, and eternall beatitude in the life to come.
+
+1. To all the Loyall harted Protestants of England, which sincerely loue the purity of Christs Gospell, and Zealously detest the damnable doctrine of Antichrist, I. V. wisheth the blessings of Gods right hand, and of his left, the blessings of this life & the life to come.
+
+1. A Friend at a stand, at his Friends worke.
+
+1. To my good Friend Master IOHN VICARS.
+
+1. In Authorem.
+
+1. In viri mihi fratris Vice, Iohannis Vicarij dignissimos Labores, 〈 in non-Latin alphabet 〉.
+
+1. To my louing frend Mr. Iohn Vicars, in praise of his praise-worthy labours, encouraging him to discourage our enemies.
+
+1. In Authorem.
+
+1. In Commendation of the Authors worthy Worke.
+
+1. To his most kind friend, Mr. Iohn Vicar, in praise of his translated and largely dilated Poeme.
+
+1. The names of the cheefe Traytors that plotted and endeauoured this Powder-Treason.
+
+1. To Momus or the carping Catholike.
+The Cloud of Ignorance and Errour.Curses and Excom̄unicationsFalsification of ScripturesOpposing the
 **Types of content**
 
   * There are 3802 **verse** lines!
